@@ -1,2 +1,1 @@
-# meio_ambiente_polarizacao
-Da diferença à intolerância: meio ambiente e polarização afetiva no Brasil
+Artigo aceito na revista Ambiente & Sociedade, 2026. Borba, J; Amorim, L. C.; Ribeiro, E. A. Valores ambientais, polarização afetiva e tolerância política no Brasil.
